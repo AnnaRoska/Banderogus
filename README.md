@@ -1,1 +1,1 @@
-https://annaroska.github.io/Banderogus/
+Banderogus
